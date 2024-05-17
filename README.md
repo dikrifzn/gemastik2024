@@ -8,3 +8,5 @@
 - Video demo
 - Harus selesai juli 12 
 - harus selesai 50%
+
+SEMANGAT !!!
